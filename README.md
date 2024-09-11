@@ -1,2 +1,2 @@
 # Techboy
-  in this portfolio can design to download my resume
+  In this portfolio can design to download my resume
